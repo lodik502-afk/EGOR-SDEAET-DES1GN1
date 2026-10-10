@@ -1,0 +1,2 @@
+# EGOR-SDEAET-DES1GN1
+портфолио
